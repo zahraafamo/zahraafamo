@@ -1,7 +1,5 @@
-### Hi there, I'm Bilal 👋
-
-## I'm a Student and Developer
+### Hi there, I'm zahraa👋
 
 - 🌱 I love to learn everything 😆
-- 👨‍🏫 Currently doing this and this
-- ⚡ Fun fact: fun fact about yourself
+- 👨‍🏫 Currently i try to experience new things
+- ⚡ Fun fact: i was an obsess otaku for 4 years
